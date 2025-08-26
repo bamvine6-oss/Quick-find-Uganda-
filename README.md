@@ -1,1 +1,1 @@
-l deel in used things and selling them.
+l deel in buying used things and selling them.
